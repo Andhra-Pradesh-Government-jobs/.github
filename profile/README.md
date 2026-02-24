@@ -16,6 +16,11 @@ Source: https://portal-psc.ap.gov.in > Andhra Pradesh Official Government websit
 📢 తాజా ఉద్యోగాల సమాచారం వెంటనే తెలుసుకోవాలంటే మా WhatsApp గ్రూప్‌ను
 జాయిన్ అవ్వండి.
 
+Application mode	🔴 [APPLY NOW.!! UPDATED 2026 (VERIFIED)](https://www.whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)
+
+<img width="900" height="1600" alt="image" src="https://github.com/user-attachments/assets/440a28a8-7965-42d3-8998-c4395c0a1d5f" />
+
+
 ------------------------------------------------------------------------
 
 ## 📌 Latest Andhra Pradesh Government Jobs
@@ -35,16 +40,16 @@ Technical & Professional Courses
 
 ## 🔔 New Updates
 
- | Latest Update                           | Status        |
+ | Latest Update                           | Status        | 
  | ---------------------------------------- | -------------- |
- | UPSC CAPF AC Online Form 2026 Apply now 2026 notification andhra pradesh government jobs         |  Available     |
- | APPSC FBO, ABO Admit Card 2026    Apply now 2026 notification andhra pradesh government jobs         |  Released      |
- | APPSC Group 2 Final Results 2025     Apply now 2026 notification andhra pradesh government jobs     |  Published     |
- | Aadhaar Supervisor Online Form 2026    Apply now 2026 notification andhra pradesh government jobs   |  Active        |
- | APMSRB Assistant Professor Recruitment   Apply now 2026 notification andhra pradesh government jobs   |  Open          |
- | APPSC FBO & ABO Mains Exam Date       Apply now 2026 notification andhra pradesh government jobs    |  Announced     |
+ | UPSC CAPF AC Online Form 2026 Apply now 2026 notification andhra pradesh government jobs         |  Available   notification Released   |
+ | APPSC FBO, ABO Admit Card 2026    Apply now 2026 notification andhra pradesh government jobs         |  Released   Apply online    |
+ | APPSC Group 2 Final Results 2025     Apply now 2026 notification andhra pradesh government jobs     |  Published  notification Released     |
+ | Aadhaar Supervisor Online Form 2026    Apply now 2026 notification andhra pradesh government jobs   |  Active    notification Released     |
+ | APMSRB Assistant Professor Recruitment   Apply now 2026 notification andhra pradesh government jobs   |  Open   Apply online       |
+ | APPSC FBO & ABO Mains Exam Date       Apply now 2026 notification andhra pradesh government jobs    |  Announced    notification Released   |
  | Bank of Maharashtra Apprentice 2026    Apply now 2026 notification andhra pradesh government jobs   |  Online Apply   |
- | APPSC Hall Ticket 2026               Apply now 2026 notification andhra pradesh government jobs     |  Available     |
+ | APPSC Hall Ticket 2026               Apply now 2026 notification andhra pradesh government jobs     |  Available  Check now   |
 
 ------------------------------------------------------------------------
 
