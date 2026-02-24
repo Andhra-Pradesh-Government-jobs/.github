@@ -128,9 +128,11 @@ Technical & Professional Courses
 ఈ పేజీలో మీరు పొందే సమాచారం:
 
 -   AP Government Jobs Notifications Latest\
+  Find latest government job notifications online from this page or ap.gov.in official website
 -   AP Sachivalayam Job Updates\
+   for All sachivalayam updates, youcan use gsws.ap.gov.in Grama ward sachivalyam updates.
 -   Andhra Pradesh Government Jobs for Female Candidates\
--   Government Job Salary Details\
+    Get all female related government job updates from this page or our dedicated group.
 -   Direct Recruitment in AP Govt Jobs\
 -   AP Government Jobs Notifications Latest 2026\
 -   AP Government Jobs Notifications in Telugu\
