@@ -18,7 +18,6 @@ Source: https://portal-psc.ap.gov.in > Andhra Pradesh Official Government websit
 
 ## Application mode	🔴 [APPLY NOW.!! UPDATED 2026 (VERIFIED)](https://www.whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)
 
-<img width="900" height="1600" alt="image" src="https://github.com/user-attachments/assets/440a28a8-7965-42d3-8998-c4395c0a1d5f" />
 
 
 ------------------------------------------------------------------------
@@ -116,6 +115,8 @@ Technical & Professional Courses
 -   Railway Jobs
 
 ------------------------------------------------------------------------
+<img width="900" height="1600" alt="image" src="https://github.com/user-attachments/assets/440a28a8-7965-42d3-8998-c4395c0a1d5f" />
+---------------------------------------------------------------------
 
 ## 📢 AP Government Jobs Notifications -- Complete Information
 
