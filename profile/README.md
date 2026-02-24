@@ -1,12 +1,15 @@
 # 🏛️ Andhra Pradesh Government Jobs -- Latest Notifications
 
+<img width="1530" height="859" alt="image" src="https://github.com/user-attachments/assets/156d5550-b7dd-4776-b984-200e7cc875b3" />
+
+
 ఆంధ్రప్రదేశ్‌లో విడుదలయ్యే తాజా ప్రభుత్వ ఉద్యోగాల సమాచారం కోసం ఈ పేజీ
 రూపొందించబడింది. మీ అర్హతలకు సరిపోయే ప్రభుత్వ ఉద్యోగాలను సులభంగా
 కనుగొనడానికి మేము సహాయం చేస్తాము.
 
+<img width="937" height="113" alt="image" src="https://github.com/user-attachments/assets/94641d28-f58d-44a1-a1d1-691c91f5c0ef" />
 
-<img width="1876" height="516" alt="image" src="https://github.com/user-attachments/assets/1990c8a1-7b85-46ad-801a-9f6552d4bc45" />
-Source: https://portal-psc.ap.gov.in > Andhra Pradesh Official Government website. 
+IMAGE CREDIT: https://portal-psc.ap.gov.in > Andhra Pradesh Official Government website. 
 
 
 ఇక్కడ **APPSC**, ప్రభుత్వ శాఖలు, విశ్వవిద్యాలయాలు మరియు కేంద్ర ప్రభుత్వ
@@ -18,6 +21,7 @@ Source: https://portal-psc.ap.gov.in > Andhra Pradesh Official Government websit
 
 ## Application mode	🔴 [APPLY NOW.!! UPDATED 2026 (VERIFIED)](https://www.whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)
 
+<img width="945" height="612" alt="image" src="https://github.com/user-attachments/assets/bd7fa502-8747-4c77-8e9f-6bbee33f2301" />
 
 
 ------------------------------------------------------------------------
@@ -51,6 +55,7 @@ Technical & Professional Courses
  | APPSC Hall Ticket 2026               Apply now 2026 notification andhra pradesh government jobs     |  Available  Check now   |
 
 ------------------------------------------------------------------------
+<img width="1886" height="273" alt="image" src="https://github.com/user-attachments/assets/6e247ca3-7499-4b30-aa6d-e64c4a3db2f4" />
 
 ## 🗺️ District Wise Government Jobs
 
