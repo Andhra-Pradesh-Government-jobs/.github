@@ -30,16 +30,16 @@ Technical & Professional Courses
 
 ## 🔔 New Updates
 
-  Latest Update                            Status
+ | Latest Update                           | Status        |
   ---------------------------------------- --------------
-  UPSC CAPF AC Online Form 2026            Available
-  APPSC FBO, ABO Admit Card 2026           Released
-  APPSC Group 2 Final Results 2025         Published
-  Aadhaar Supervisor Online Form 2026      Active
-  APMSRB Assistant Professor Recruitment   Open
-  APPSC FBO & ABO Mains Exam Date          Announced
-  Bank of Maharashtra Apprentice 2026      Online Apply
-  APPSC Hall Ticket 2026                   Available
+ | UPSC CAPF AC Online Form 2026          |  Available     |
+ | APPSC FBO, ABO Admit Card 2026         |  Released      |
+ | APPSC Group 2 Final Results 2025       |  Published     |
+ | Aadhaar Supervisor Online Form 2026    |  Active        |
+ | APMSRB Assistant Professor Recruitment |  Open          |
+ | APPSC FBO & ABO Mains Exam Date        |  Announced     |
+ | Bank of Maharashtra Apprentice 2026    |  Online Apply   |
+ | APPSC Hall Ticket 2026                 |  Available     |
 
 ------------------------------------------------------------------------
 
