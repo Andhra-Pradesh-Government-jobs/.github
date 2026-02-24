@@ -31,7 +31,7 @@ Technical & Professional Courses
 ## 🔔 New Updates
 
  | Latest Update                           | Status        |
-  ---------------------------------------- --------------
+ | ---------------------------------------- | -------------- |
  | UPSC CAPF AC Online Form 2026          |  Available     |
  | APPSC FBO, ABO Admit Card 2026         |  Released      |
  | APPSC Group 2 Final Results 2025       |  Published     |
@@ -45,15 +45,15 @@ Technical & Professional Courses
 
 ## 🗺️ District Wise Government Jobs
 
-  Districts       Districts       Districts
-  --------------- --------------- ---------------
-  Anantapur       Chittoor        Kadapa
-  East Godavari   Guntur          Kakinada
-  Krishna         Kurnool         Machilipatnam
-  Nandyal         Nellore         Prakasam
-  Rajahmundry     Srikakulam      Tirupati
-  Vijayawada      Visakhapatnam   Vizianagaram
-  West Godavari                   
+ | Districts      | Districts      | Districts    |
+ | --------------- --------------- | ------------ |
+ | Anantapur     |  Chittoor        Kadapa        |
+ | East Godavari |  Guntur          Kakinada      |
+ | Krishna       |  Kurnool         Machilipatnam  |
+ | Nandyal       |  Nellore         Prakasam    |
+ | Rajahmundry   |  Srikakulam      Tirupati     |
+ | Vijayawada    |  Visakhapatnam   Vizianagaram  |
+ | West Godavari   |               |             |
 
 ------------------------------------------------------------------------
 
