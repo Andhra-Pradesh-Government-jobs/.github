@@ -80,46 +80,46 @@ Technical & Professional Courses
   -------------------------------------------------------------------------------
 |  Post Date    |  Recruitment    | Post Name      |   Qualification  | Last Date |
                  Board                                             
- | -------------- | --------------- | ----------------- | --------------- | -------------- |
-|  23/02/2026     ANGRAU         | Teaching       |   Any Graduate,  | 02-03-2026
+| -------------- | --------------- | ----------------- | --------------- | -------------- |
+|  23/02/2026   |  ANGRAU         | Teaching       |   Any Graduate,  | 02-03-2026 |
                                  Assistant (1      Ph.D            
                                  Post)                             
 
- | 23/02/2026   |  IIT Tirupati  |  Research       |   M.Phil / Ph.D   06-03-2026
+ | 23/02/2026   |  IIT Tirupati  |  Research       |   M.Phil / Ph.D   06-03-2026 |
                                  Associate III                     
 
- | 23/02/2026  |   DMHO           | DEO, Pharmacist & Degree,      |   26-02-2026
+ | 23/02/2026  |   DMHO           | DEO, Pharmacist & Degree,      |   26-02-2026 |
                  Visakhapatnam   More (20)         B.Pharm, 10TH   
 
-|  23/02/2026   |  DMHO           | Physiotherapist & BDS, B.Sc, M.Sc  | 26-02-2026
+|  23/02/2026   |  DMHO           | Physiotherapist & BDS, B.Sc, M.Sc  | 26-02-2026 |
                  Visakhapatnam   More (18)                         
 
- | 21/02/2026   |  IIT Tirupati   | Institute       |  M.Phil / Ph.D  | 05-03-2026
+ | 21/02/2026   |  IIT Tirupati   | Institute       |  M.Phil / Ph.D  | 05-03-2026 |
                                  Counsellor (2)                    
 
-| 21/02/2026   |  UPSC           | Assistant        | Any Degree    |  12-03-2026
+| 21/02/2026   |  UPSC           | Assistant        | Any Degree    |  12-03-2026 |
                                  Commandants (349)                 
 
- | 20/02/2026   |  WDCW Kurnool  |  Center           | Degree /      |  24-02-2026
+ | 20/02/2026   |  WDCW Kurnool  |  Center           | Degree /      |  24-02-2026 | 
                                  Administrator &   Masters         
                                  More                              
 
-  | 20/02/2026   |  IPRCL         |  Manager Posts  |   Relevant      |  25-03-2026
+  | 20/02/2026   |  IPRCL         |  Manager Posts  |   Relevant      |  25-03-2026 |
                                  (23)              Qualification   
 
-|  19/02/2026    | HPCL           | Graduate        |  B.Tech / B.E     | 02-03-2026
+|  19/02/2026    | HPCL           | Graduate        |  B.Tech / B.E     | 02-03-2026 |
                                  Apprentice (608)                  
 
-|  14/02/2026     CSC            | Aadhaar          | Diploma / ITI /  | 10-03-2026
+|  14/02/2026     CSC            | Aadhaar          | Diploma / ITI /  | 10-03-2026 |
                  e-Governance    Supervisor (252)  12TH            
 
- | 07/02/2026     Sainik School |  PGT Teacher      | B.Ed / M.Ed  |   27-02-2026
+ | 07/02/2026     Sainik School |  PGT Teacher      | B.Ed / M.Ed  |   27-02-2026 |
                  Kalikiri                                          
 
- | 29/01/2026     DRDO NSTL      | Junior Research  | B.Tech / M.Tech | 26-02-2026
+ | 29/01/2026     DRDO NSTL      | Junior Research  | B.Tech / M.Tech | 26-02-2026 |
                                  Fellow (7)                        
 
- | 24/01/2026     IIT Tirupati   | Junior Research |  B.Tech / M.Tech | 24-02-2026
+ | 24/01/2026     IIT Tirupati   | Junior Research |  B.Tech / M.Tech | 24-02-2026 |
                                  Fellow                            
   -------------------------------------------------------------------------------
 
