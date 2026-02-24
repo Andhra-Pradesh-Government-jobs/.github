@@ -80,9 +80,9 @@ Technical & Professional Courses
 |  Post Date    |  Recruitment    | Post Name      |   Qualification  | Last Date |
                    Board                                             
 | -------------- | --------------- | ----------------- | --------------- | -------------- |
-|  23/02/2026   |  ANGRAU         | Teaching       |   Any Graduate,  | 02-03-2026 |
-                                 Assistant (1      Ph.D            
-                                 Post)                             
+
+|  23/02/2026   |  ANGRAU         | Teaching       |   Any Graduate, Ph.D   | 02-03-2026 |
+                                                              
 
  | 23/02/2026   |  IIT Tirupati  |  Research       |   M.Phil / Ph.D  | 06-03-2026 |
                                  Associate III                     
