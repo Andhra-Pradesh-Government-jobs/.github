@@ -77,47 +77,21 @@ Technical & Professional Courses
 
 ## 📋 Andhra Pradesh Latest Recruitment Notifications
 
-|  Post Date    |  Recruitment    | Post Name      |   Qualification  | Last Date |
-                   Board                                             
+|  Post Date    |  Recruitment   Board     | Post Name      |   Qualification  | Last Date |                                                        
 | -------------- | --------------- | ----------------- | --------------- | -------------- |
-
-|  23/02/2026   |  ANGRAU         | Teaching       |   Any Graduate, Ph.D   | 02-03-2026 |
-                                                              
-
- | 23/02/2026   |  IIT Tirupati  |  Research       |   M.Phil / Ph.D  | 06-03-2026 |
-                                 Associate III                     
-
- | 23/02/2026  |   DMHO   Visakhapatnam        | DEO, Pharmacist & Degree,    B.Pharm, 10TH      |   26-02-2026 |
-                      
-
-|  23/02/2026   |  DMHO    Visakhapatnam       | Physiotherapist & BDS, B.Sc, M.Sc More (18)      | 26-02-2026 |
-                                        
-
- | 21/02/2026   |  IIT Tirupati   | Institute    Counsellor (2)    |  M.Phil / Ph.D  | 05-03-2026 |
-                                                    
-
-| 21/02/2026   |  UPSC           | Assistant   Commandants (349)       | Any Degree    |  12-03-2026 |
-                                                
-
- | 20/02/2026   |  WDCW Kurnool  |  Center           | Degree      |  24-02-2026 | 
-                                                               
-
-  | 20/02/2026   |  IPRCL         |  Manager Posts  |   Relevant      |  25-03-2026 |
-                                
-
-|  19/02/2026    | HPCL           | Graduate  Apprentice (608)        |  B.Tech / B.E     | 02-03-2026 |
-                                                 
-
-|  14/02/2026     CSC      e-Governance       | Aadhaar    Supervisor (252)  12TH         | Diploma / ITI /  | 10-03-2026 |
-                             
-
- | 07/02/2026     Sainik School Kalikiri |  PGT Teacher      | B.Ed / M.Ed  |   27-02-2026 |
-                                                           
-
- | 29/01/2026     DRDO NSTL      | Junior Research Fellow (7)    | B.Tech / M.Tech | 26-02-2026 |
-                                                       
-
- | 24/01/2026     IIT Tirupati   | Junior Research   Fellow  |  B.Tech / M.Tech | 24-02-2026 |
+|  23/02/2026   |  ANGRAU         | Teaching       |   Any Graduate, Ph.D   | 02-03-2026 |                                                              
+ | 23/02/2026   |  IIT Tirupati  |  Research    Associate III     |   M.Phil / Ph.D  | 06-03-2026 |                                                    
+ | 23/02/2026  |   DMHO   Visakhapatnam        | DEO, Pharmacist & Degree,    B.Pharm, 10TH      |   26-02-2026 |                   
+|  23/02/2026   |  DMHO    Visakhapatnam       | Physiotherapist & BDS, B.Sc, M.Sc More (18)      | 26-02-2026 |                                       
+ | 21/02/2026   |  IIT Tirupati   | Institute    Counsellor (2)    |  M.Phil / Ph.D  | 05-03-2026 |                                                    
+| 21/02/2026   |  UPSC           | Assistant   Commandants (349)       | Any Degree    |  12-03-2026 |                                                
+ | 20/02/2026   |  WDCW Kurnool  |  Center           | Degree      |  24-02-2026 |                                                                
+  | 20/02/2026   |  IPRCL         |  Manager Posts  |   Relevant      |  25-03-2026 |                                
+|  19/02/2026    | HPCL           | Graduate  Apprentice (608)        |  B.Tech / B.E     | 02-03-2026 |                                                 
+|  14/02/2026   |  CSC      e-Governance       | Aadhaar    Supervisor (252)  12TH         | Diploma / ITI /  | 10-03-2026 |                             
+ | 07/02/2026 |    Sainik School Kalikiri |  PGT Teacher      | B.Ed / M.Ed  |   27-02-2026 |                                                           
+ | 29/01/2026  |   DRDO NSTL      | Junior Research Fellow (7)    | B.Tech / M.Tech | 26-02-2026 |                                                       
+ | 24/01/2026 |    IIT Tirupati   | Junior Research   Fellow  |  B.Tech / M.Tech | 24-02-2026 |
                                                            
   -------------------------------------------------------------------------------
 
