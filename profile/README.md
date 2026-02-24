@@ -4,8 +4,10 @@
 రూపొందించబడింది. మీ అర్హతలకు సరిపోయే ప్రభుత్వ ఉద్యోగాలను సులభంగా
 కనుగొనడానికి మేము సహాయం చేస్తాము.
 
+
 <img width="1876" height="516" alt="image" src="https://github.com/user-attachments/assets/1990c8a1-7b85-46ad-801a-9f6552d4bc45" />
 Source: https://portal-psc.ap.gov.in > Andhra Pradesh Official Government website. 
+
 
 ఇక్కడ **APPSC**, ప్రభుత్వ శాఖలు, విశ్వవిద్యాలయాలు మరియు కేంద్ర ప్రభుత్వ
 సంస్థల ద్వారా విడుదలయ్యే **Direct Recruitment Notifications**, తాజా జాబ్
